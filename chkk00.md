@@ -62,3 +62,11 @@ chiū-sī iōng Lô-má-jī lâi siá chheh, ìn cha̍p-chì, á-sī
 lō͘**.  Koan-hē chit chân tī tē-jī hāng ū lūn khah
 siông-sè. Chhiáⁿ tāi-ke chiah tùi hia koh **chhim-
 chhim** **siūⁿ chi̍t-ē khòaⁿ**.
+
+Ia̍h góa só͘ siá chit pún chheh, góa khiok m̄-káⁿ
+kóng, iōng chit pún beh lâi ke-thiⁿ tāi-ke lōa-chē ê
+ha̍k-būn, put-kò sī thò͘-lō͘ góa ê gû-kiàn ê chit pō͘-
+hūn, tîn-lia̍t tī chèng hiaⁿ-tī chis-mōe ê bīn-chêng,
+lâi kap tāi-ke **chham-siông khòaⁿ**, ài hō͘ Tâi-oân
+khah hoat-ta̍t, beh hō͘ lán ê tông-pau khah **hiòng-**
+**siōng**, lán tio̍h **cháiⁿ-iūⁿ** siūⁿ, cháiⁿ-iūⁿ chò?
