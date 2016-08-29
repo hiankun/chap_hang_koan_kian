@@ -70,3 +70,8 @@ hūn, tîn-lia̍t tī chèng hiaⁿ-tī chis-mōe ê bīn-chêng,
 lâi kap tāi-ke **chham-siông khòaⁿ**, ài hō͘ Tâi-oân
 khah hoat-ta̍t, beh hō͘ lán ê tông-pau khah **hiòng-**
 **siōng**, lán tio̍h **cháiⁿ-iūⁿ** siūⁿ, cháiⁿ-iūⁿ chò?
+Ia̍h lán chiông-lâi ê só͘ siūⁿ só͘ chò, kiám m̄-sī ū chhò-
+gō͘ ê tiám tī-teh? Góa sī chiong góa só͘ ū kám-
+kak--tio̍h, koh-chài sī siāng tē-it ài tāi-seng kap 
+tông-pau **chham-siông chim-chiok** ê tāi-chì, hun-
+chò cha̍p-ê tê-ba̍k siá tī-chia.
