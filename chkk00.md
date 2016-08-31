@@ -75,3 +75,8 @@ gō͘ ê tiám tī-teh? Góa sī chiong góa só͘ ū kám-
 kak--tio̍h, koh-chài sī siāng tē-it ài tāi-seng kap 
 tông-pau **chham-siông chim-chiok** ê tāi-chì, hun-
 chò cha̍p-ê tê-ba̍k siá tī-chia.
+
+Lia̍t-ūi, tī chit ê lāi-bīn, góa ê só͘ siūⁿ ū chhò-gō͘
+ê tiám, nā-sī tāi-ke bo̍h-tit kan-ta khòaⁿ, pàng hō͘
+i kòe-khì, khéng thè góa chí-tiám têng-chèng hō͘ i
+bêng-pe̍k, **sì-chiàⁿ**, chiū sī góa chòe kám-siā ê só͘-chāi. 
