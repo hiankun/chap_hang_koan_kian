@@ -75,3 +75,26 @@ gō͘ ê tiám tī-teh? Góa sī chiong góa só͘ ū kám-
 kak--tio̍h, koh-chài sī siāng tē-it ài tāi-seng kap 
 tông-pau **chham-siông chim-chiok** ê tāi-chì, hun-
 chò cha̍p-ê tê-ba̍k siá tī-chia.
+
+Lia̍t-ūi, tī chit ê lāi-bīn, góa ê só͘ siūⁿ ū chhò-gō͘
+ê tiám, mā-sī tāi-ke **bo̍h-tit** kan-ta khòaⁿ, pàng hō͘
+i kòe-khì, khéng thè góa chí-tiám tèng-chèng hō͘ i
+bêng-pe̍k, **sì-chiàⁿ**, chiū-sī góa chòe kám-siā ê só͘-chāi.
+
+Chit pún chheh sui-jiân sī sió-sió, chū Tāi-chèng
+12 nî 10 goe̍h chhe siá khí, tú-tú sī siá chi̍t-nî kú
+chiah chiâⁿ. Chi̍t hāng, sī góa siông chhut-gōa;
+koh chi̍t hāng, sī in-ūi kū-nî 12 goe̍h 16 ji̍t hō͘ lâng
+lia̍h-khì **koaiⁿ-kaⁿ** 65 ji̍t, í-āu koh ūi-tio̍h chit chân
+sū **chhiau-chhe̍k**, chió-chió ū kang thang **kia̍h pit**.
+Só͘-í beh siá chi̍t hāng ê gī-lūn, tī hit ê tiong-kan
+tio̍h hioh-khùn kúi-nā pái. Koh-chài chi̍t pái ê
+hioh-khùn, ū-sî beh kàu chiâⁿ goe̍h-ji̍t, **tì-kàu** hō͘
+góa ê sim-su lóng khah bōe **koàn-chhoàn**, só͘ siá--ê
+chē-chē bē thang chiàu ì-sù, góa ka-tī bô boán-chiok
+ê só͘-chāi sī bē chió. Chhiáⁿ tāi-ke _chi̍t-tiám_ thé-
+thiap góa.
+
+
+
+
