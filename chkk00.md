@@ -96,5 +96,3 @@ chē-chē bē thang chiàu ì-sù, góa ka-tī bô boán-chiok
 thiap góa.
 
 
-
-
