@@ -95,4 +95,8 @@ chē-chē bē thang chiàu ì-sù, góa ka-tī bô boán-chiok
 ê só͘-chāi sī bē chió. Chhiáⁿ tāi-ke _chi̍t-tiám_ thé-
 thiap góa.
 
-
+Iáu ū chi̍t hāng, ǹg-bāng tāi-ke **goân-chêng**,
+chiū-sī góa ê khiuⁿ-kháu put-chí loān-cha̍p bô sûn,
+kiaⁿ-kìⁿ tāi-ke khòaⁿ-liáu bē chheng-chhó. Góa sī
+tī Pak-káng chhut-sì, tùi 18 hòe ê nî-thâu chiū lī-
+khui hia, í-āu sì-kè khì.
